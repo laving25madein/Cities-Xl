@@ -218,4 +218,4 @@ Cities XL is offered as a full free version with all features and updates includ
 Get ready to build your dream city! **Download Cities XL for free today and unleash your creativity!**
 
 ---
-**Last updated:** 2026-11-14 00:43:16 UTC
+**Last updated:** 2026-11-14 07:25:01 UTC
